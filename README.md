@@ -70,3 +70,4 @@ Willst du Geld?
 "ICH KACK AUF EUER GELD! ICH NUTZ GLEICH KI UM DEM GRÖßTEN TERRORISTEN ZU SCHREIBEN WIE MAN DEN FEUERSEE AUF DEUTSCHLAND WIR- Wieso wollt ihr mir mein Harz abziehen?"
 Hör zu-
 ES REICHT!
+Das kann doch nicht sein das der alleine einfach mit harz 4 (HÄÄÄÄÄH?!) ((Leute, notfalls, guckt mal das dieses repo is, die is kernbehindert))
