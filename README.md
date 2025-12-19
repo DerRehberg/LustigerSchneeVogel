@@ -54,3 +54,7 @@ Hääh, also gibt es keine KI?!
 Doch! Weltweit!
 Der is doch behindert, wir gehen.
 (Nichtmal die Firma dies Weltweit zur verfügung gestellt hat macht damit geld sogesehen)
+Da hammse doch-
+SUCHEN SE SICH N HOBB(sr, dingens taste schrott), ICH HABN SCHEIßDRECK GEMACHT! WAS IST ÜBERHAUPT MIT EUCH ALLEN FALSCH!
+Hören Sie, sie- 
+Guten Tag, Polizei? Jap, Nötigung schon wieder.
