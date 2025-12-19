@@ -71,3 +71,4 @@ Willst du Geld?
 Hör zu-
 ES REICHT!
 Das kann doch nicht sein das der alleine einfach mit harz 4 (HÄÄÄÄÄH?!) ((Leute, notfalls, guckt mal das dieses repo is, die is kernbehindert))
+Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib und dann die therapeutin.
