@@ -62,4 +62,4 @@ Weil Notfalls kackt mich die Firma an, denn die sind über 25 und wissen nix meh
 HÄÄÄH! Mir Harz kann man doch garnicht Leben!
 Ich hol mir erstmal n Bier, oh jeaah.
 Der Antichrist hat da son KI Bild, kennt ihr Schneider? Heißt glaube eig normalerweise anders aber-
-(generell weil der baum)
+(generell weil der baum weil wir hatten son Zylinder)
