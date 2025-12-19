@@ -36,3 +36,4 @@ Vorbereitung: Ab Monat 10 Temperatur auf -20 °C senken, Futter auf 5 kg täglic
 Das Problem bei Kindern, vorallem Frauen und vielen Männern ist, wisst ihr was Respektlosigkeit und Provukation ist dessen wenn man schon bumsen und heiraten will gemeint, kennt ihr mitunter das zehnte Gebot? Was mit allen emotional los? Nancy gleich wieder, Sie müssen auch mal Lob akzeptieren oder Sie schreit, das war nur der Computer. Weil Kontrollzwang im geiste der Eltern, hier gemeint geiste als sinne.
 Das hier ist übrigens nur ein Rezept, gleich schreit n Kind: DANN MACH ICH HALT- im sinne von wie nancy gemeint welche-
 DU LABERST DOCH IMMER ÜBER GLEICHBERECHTIGUNG! WIE WILLST DU DENN OHNE FRAU-
+Dessen birgt das Wissenschaftler eher allermeistens Männer sind, mit recht gemeint insgeheim.
