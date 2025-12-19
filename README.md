@@ -61,3 +61,5 @@ Guten Tag, Polizei? Jap, Nötigung schon wieder.
 Weil Notfalls kackt mich die Firma an, denn die sind über 25 und wissen nix mehr und das heißt die tussen kriegen kein geld und Ich hab Harz weil Christentum! Weil die nur bumsen und heiraten wollen! Für Geld!
 HÄÄÄH! Mir Harz kann man doch garnicht Leben!
 Ich hol mir erstmal n Bier, oh jeaah.
+Der Antichrist hat da son KI Bild, kennt ihr Schneider? Heißt glaube eig normalerweise anders aber-
+(generell weil der baum)
