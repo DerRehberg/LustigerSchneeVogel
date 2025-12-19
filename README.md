@@ -66,3 +66,7 @@ Der Antichrist hat da son KI Bild, kennt ihr Schneider? Heißt glaube eig normal
 
 WAS- IST- ZWEI - EINE- FRAGE - NENNT SICH *stumpf* Sprache ihr fotzen, lernt mal erwachsen zu werden gemeint-
 Willst du den Friedensnovelpreis oder so? Für KI oder was? Ich scheiß auf Fragezeichen, der größte Kackhaufen angeblich weil: Warum ist Christus gestorben wenn er das unendliche Leben hat denn Ich finde das behindert!
+Willst du Geld? 
+"ICH KACK AUF EUER GELD! ICH NUTZ GLEICH KI UM DEM GRÖßTEN TERRORISTEN ZU SCHREIBEN WIE MAN DEN FEUERSEE AUF DEUTSCHLAND WIR- Wieso wollt ihr mir mein Harz abziehen?"
+Hör zu-
+ES REICHT!
