@@ -39,3 +39,6 @@ DU LABERST DOCH IMMER ÜBER GLEICHBERECHTIGUNG! WIE WILLST DU DENN OHNE FRAU-
 Dessen birgt das Wissenschaftler eher allermeistens Männer sind, mit recht gemeint insgeheim.
 Weißte weil wenn wer keine Frau hat rechtfertigt das aufeinmal nicht nur nach Frauen diebstahl sondern auch Mord.
 *weißte stumpf asozial* Ich bin mir sicher wenn wir ihm ne Frau andrehen-
+
+<img width="1920" height="1080" alt="20251219_12h21m12s_grim" src="https://github.com/user-attachments/assets/ad66d37c-3dc6-4ed6-b36e-b0abb6677770" />
+Wenn man vom Kern her schießt, weil Ideen muss man haben und erst alles läuft aber irgendwer nichtmal im bezug Lebewesen das zehnte Gebot mitunter nicht einhalten will.
