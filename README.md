@@ -38,3 +38,4 @@ Das hier ist übrigens nur ein Rezept, gleich schreit n Kind: DANN MACH ICH HALT
 DU LABERST DOCH IMMER ÜBER GLEICHBERECHTIGUNG! WIE WILLST DU DENN OHNE FRAU-
 Dessen birgt das Wissenschaftler eher allermeistens Männer sind, mit recht gemeint insgeheim.
 Weißte weil wenn wer keine Frau hat rechtfertigt das aufeinmal nicht nur nach Frauen diebstahl sondern auch Mord.
+*weißte stumpf asozial* Ich bin mir sicher wenn wir ihm ne Frau andrehen-
