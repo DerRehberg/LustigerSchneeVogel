@@ -237,4 +237,4 @@ Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib un
 Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib und dann die therapeutin.
 Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib und dann die therapeutin.
 Unendlich Zeichen oder Ego gewichse weil man nicht loslassen kann. KANNST JA WEG ZIEHEN!? ÖHHH! (ÖHHH)
-ESST EURE SCHEIß SUPPE!
+ESST EURE SCHEIß SUPPE! Gedroht Ich poste gleich den Ledig Score, mit 25 landen die alle beim Jobcenter!
