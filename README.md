@@ -1,4 +1,4 @@
-# LustigerSchneeVogel
+# LustigerSchneeVogel #HiergiltdieLizensnichtaberachtetaufdenPfeilbeiderLinzenzindiesemRepo
 
 "Ich erklär dir jetzt, wie du so ’nen Schnee-Skraev Behemoth züchtest. Für die, die Dauntless nicht kennen: Der Skraev ist ’ne riesige, eulenartige Kreatur mit ’ner eisigen Aura, massiven Flügeln und ’nem Körper, der wie ’ne Mischung aus Vogel und Bestie wirkt. In Originalgröße reden wir von ’ner Flügelspannweite von gut 10 Metern und ’ner Höhe von etwa 5 Metern. Wir kombinieren Biologie, Genetik und pflanzliche Alchemie, um das Ding zu erschaffen. Kein Pharma-Mist, nur pure Natur. Hier die Anleitung."
 Ihr Ton ist locker, aber messerscharf, als würde sie dir ’nen uralten Geheimplan verraten, der die Welt auf den Kopf stellt.
