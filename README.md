@@ -65,4 +65,4 @@ Der Antichrist hat da son KI Bild, kennt ihr Schneider? Heißt glaube eig normal
 (generell weil der baum weil wir hatten son Zylinder, da liegt n Fluch drauf für in die Vergangenheit)
 
 WAS- IST- ZWEI - EINE- FRAGE - NENNT SICH *stumpf* Sprache ihr fotzen, lernt mal erwachsen zu werden gemeint-
-Willst du den Friedensnovelpreis oder so? Für KI oder was? 
+Willst du den Friedensnovelpreis oder so? Für KI oder was? Ich scheiß auf Fragezeichen, der größte Kackhaufen angeblich weil: Warum ist Christus gestorben wenn er das unendliche Leben hat denn Ich finde das behindert!
