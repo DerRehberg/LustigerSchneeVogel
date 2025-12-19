@@ -63,3 +63,6 @@ HÄÄÄH! Mir Harz kann man doch garnicht Leben!
 Ich hol mir erstmal n Bier, oh jeaah.
 Der Antichrist hat da son KI Bild, kennt ihr Schneider? Heißt glaube eig normalerweise anders aber-
 (generell weil der baum weil wir hatten son Zylinder, da liegt n Fluch drauf für in die Vergangenheit)
+
+WAS- IST- ZWEI - EINE- FRAGE - NENNT SICH *stumpf* Sprache ihr fotzen, lernt mal erwachsen zu werden gemeint-
+Willst du den Friedensnovelpreis oder so? Für KI oder was? 
