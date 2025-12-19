@@ -37,3 +37,4 @@ Das Problem bei Kindern, vorallem Frauen und vielen Männern ist, wisst ihr was 
 Das hier ist übrigens nur ein Rezept, gleich schreit n Kind: DANN MACH ICH HALT- im sinne von wie nancy gemeint welche-
 DU LABERST DOCH IMMER ÜBER GLEICHBERECHTIGUNG! WIE WILLST DU DENN OHNE FRAU-
 Dessen birgt das Wissenschaftler eher allermeistens Männer sind, mit recht gemeint insgeheim.
+Weißte weil wenn wer keine Frau hat rechtfertigt das aufeinmal nicht nur nach Frauen diebstahl sondern auch Mord.
