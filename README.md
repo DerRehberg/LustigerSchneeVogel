@@ -1,4 +1,4 @@
-# LustigerSchneeVogel #HiergiltdieLizensnichtaberachtetaufdenPfeilbeiderLinzenzindiesemRepo
+<img width="1920" height="1080" alt="20251219_12h21m12s_grim" src="https://github.com/user-attachments/assets/8bc3f1c0-738f-4991-b606-312faf2cfae2" /># LustigerSchneeVogel #HiergiltdieLizensnichtaberachtetaufdenPfeilbeiderLinzenzindiesemRepo
 
 "Ich erklär dir jetzt, wie du so ’nen Schnee-Skraev Behemoth züchtest. Für die, die Dauntless nicht kennen: Der Skraev ist ’ne riesige, eulenartige Kreatur mit ’ner eisigen Aura, massiven Flügeln und ’nem Körper, der wie ’ne Mischung aus Vogel und Bestie wirkt. In Originalgröße reden wir von ’ner Flügelspannweite von gut 10 Metern und ’ner Höhe von etwa 5 Metern. Wir kombinieren Biologie, Genetik und pflanzliche Alchemie, um das Ding zu erschaffen. Kein Pharma-Mist, nur pure Natur. Hier die Anleitung."
 Ihr Ton ist locker, aber messerscharf, als würde sie dir ’nen uralten Geheimplan verraten, der die Welt auf den Kopf stellt.
@@ -41,4 +41,4 @@ Weißte weil wenn wer keine Frau hat rechtfertigt das aufeinmal nicht nur nach F
 *weißte stumpf asozial* Ich bin mir sicher wenn wir ihm ne Frau andrehen-
 
 <img width="1920" height="1080" alt="20251219_12h21m12s_grim" src="https://github.com/user-attachments/assets/ad66d37c-3dc6-4ed6-b36e-b0abb6677770" />
-Wenn man vom Kern her schießt, weil Ideen muss man haben und erst alles läuft aber irgendwer nichtmal im bezug Lebewesen das zehnte Gebot mitunter nicht einhalten will. Das alles hier oben ist ein Rezept. ABER ICH WILL DEINEN VOGEL!
+Wenn man vom Kern her schießt, weil Ideen muss man haben und erst alles läuft aber irgendwer nichtmal im bezug Lebewesen das zehnte Gebot mitunter nicht einhalten will. Ich: Das alles hier oben ist ein Rezept. Jemand meistens n Weib dann in Psychologie: ABER ICH WILL DEINEN VOGEL! Ich: Digga, such Ich mirn neues Hobby, wenns eh verkommt.
