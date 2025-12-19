@@ -41,4 +41,5 @@ Weißte weil wenn wer keine Frau hat rechtfertigt das aufeinmal nicht nur nach F
 *weißte stumpf asozial* Ich bin mir sicher wenn wir ihm ne Frau andrehen-
 
 <img width="1920" height="1080" alt="20251219_12h21m12s_grim" src="https://github.com/user-attachments/assets/ad66d37c-3dc6-4ed6-b36e-b0abb6677770" />
+Wohl angemerkt, 2 Striche sind da eigentlich garnicht da. (Wundersam so die hände überraschend gemeint aber ruhig) und dass ist das ding, es ist einfach.
 Wenn man vom Kern her schießt gemeint Ich, weil Ideen muss man haben und erst alles läuft aber irgendwer nichtmal im bezug Lebewesen das zehnte Gebot mitunter nicht einhalten will. Ich: Das alles hier oben ist ein Rezept. Jemand meistens n Weib dann in Psychologie: ABER ICH WILL DEINEN VOGEL! Ich: Digga, such Ich mirn neues Hobby, wenns eh verkommt. - HÄÄÄH! WAS HATTER DENN JETZT FÜR NE IDEE!? ICH WILL DAS WISSEN!
