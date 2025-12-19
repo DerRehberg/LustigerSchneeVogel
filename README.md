@@ -47,3 +47,10 @@ was?
 Das.
 Häh?
 Ne Frage, lern zu denken. *geht weg* Dumme hure. (Ohne dass Ich die bumsen will etc)
+*spongebob like viele Jahre später in gedanken schon*
+Wieder nervige dumme mädchenstimme sogesehen: HÄÄÄÄÄH!? Wo ist den das Geld? Wenn du kein Geld hast hast du auch nichts gemacht!
+Ich bin Harzer!
+Hääh, also gibt es keine KI?!
+Doch! Weltweit!
+Der is doch behindert, wir gehen.
+(Nichtmal die Firma dies Weltweit zur verfügung gestellt hat macht damit geld sogesehen)
