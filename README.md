@@ -59,3 +59,5 @@ SUCHEN SE SICH N HOBB(sr, dingens taste schrott), ICH HABN SCHEIßDRECK GEMACHT!
 Hören Sie, sie- 
 Guten Tag, Polizei? Jap, Nötigung schon wieder.
 Weil Notfalls kackt mich die Firma an, denn die sind über 25 und wissen nix mehr und das heißt die tussen kriegen kein geld und Ich hab Harz weil Christentum! Weil die nur bumsen und heiraten wollen! Für Geld!
+HÄÄÄH! Mir Harz kann man doch garnicht Leben!
+Ich hol mir erstmal n Bier, oh jeaah.
