@@ -74,5 +74,6 @@ Das kann doch nicht sein das der alleine einfach mit harz 4 (HÄÄÄÄÄH?!) ((L
 Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib und dann die therapeutin.
 
 Das Symbolbild aller Frauen und dessen Taten mitunter Kriege auf Erden weil bumsen, ehe, kinder und mitunter vorallem mehr Geld gemeint viel mitunter, generell! 
+
 <img width="633" height="476" alt="image" src="https://github.com/user-attachments/assets/4bd3d8bf-186c-4564-a70b-738b54351f3c" />
 
