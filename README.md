@@ -238,3 +238,6 @@ Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib un
 Gleich eine Respektlos und behindert, alle decken reise nach jerusalem n weib und dann die therapeutin.
 Unendlich Zeichen oder Ego gewichse weil man nicht loslassen kann. KANNST JA WEG ZIEHEN!? ÖHHH! (ÖHHH)
 ESST EURE SCHEIß SUPPE! Gedroht Ich poste gleich den Ledig Score, mit 25 landen die alle beim Jobcenter!
+
+An alle weiber, lieber fahr Ich mit Merz mit solchen dingern nicht ausfahrbar mit solid state und programmcode regulation den radweg nach warstein lang wo ich nicht lenken muss während seine frau aufpassen muss, weil ich n anderes kind bin als zu bumsen zu heiraten und n kind zu bekommen, weil alles 3 im verhältnis kindergarten ist, weil bild von merz jugend, der hat mal den friseur gemieden.
+https://youtu.be/Lq-TvpJ2hPI?si=H1OYUQfs99FP8BC5
